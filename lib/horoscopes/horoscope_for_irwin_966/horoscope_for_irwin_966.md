@@ -1,0 +1,1 @@
+Irwin Cummerata's [horoscope](https://www.cosmosdivina.com/).

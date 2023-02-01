@@ -1,0 +1,1 @@
+Mariana Gleichner's [horoscope](https://www.cosmosdivina.com/).

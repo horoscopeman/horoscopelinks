@@ -1,0 +1,1 @@
+Fredrick Pollich's [horoscope](https://www.cosmosdivina.com/).

@@ -1,0 +1,1 @@
+Mabelle Williamson's [horoscope](https://www.cosmosdivina.com/).

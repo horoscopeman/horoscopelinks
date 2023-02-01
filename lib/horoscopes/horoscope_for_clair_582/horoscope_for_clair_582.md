@@ -1,0 +1,1 @@
+Clair Schamberger's [horoscope](https://www.cosmosdivina.com/).

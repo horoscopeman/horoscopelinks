@@ -1,0 +1,1 @@
+Mallie Prosacco's [horoscope](https://www.cosmosdivina.com/).

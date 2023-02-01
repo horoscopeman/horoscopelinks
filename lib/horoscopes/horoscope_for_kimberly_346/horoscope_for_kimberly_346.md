@@ -1,0 +1,1 @@
+Kimberly Stracke's [horoscope](https://www.cosmosdivina.com/).

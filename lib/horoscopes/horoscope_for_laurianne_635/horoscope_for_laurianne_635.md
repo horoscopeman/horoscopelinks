@@ -1,0 +1,1 @@
+Laurianne Connelly's [horoscope](https://www.cosmosdivina.com/).

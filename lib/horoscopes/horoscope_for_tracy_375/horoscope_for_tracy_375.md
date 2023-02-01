@@ -1,0 +1,1 @@
+Tracy Ullrich's [horoscope](https://www.cosmosdivina.com/).

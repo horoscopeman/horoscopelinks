@@ -1,0 +1,1 @@
+Brannon Mayert's [horoscope](https://www.cosmosdivina.com/).

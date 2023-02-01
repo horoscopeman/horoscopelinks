@@ -1,0 +1,1 @@
+Presley Fay's [horoscope](https://www.cosmosdivina.com/).

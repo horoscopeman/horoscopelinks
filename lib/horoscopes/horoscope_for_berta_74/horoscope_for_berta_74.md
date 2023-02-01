@@ -1,0 +1,1 @@
+Berta Bins's [horoscope](https://www.cosmosdivina.com/).

@@ -1,0 +1,1 @@
+Camren Frami's [horoscope](https://www.cosmosdivina.com/).

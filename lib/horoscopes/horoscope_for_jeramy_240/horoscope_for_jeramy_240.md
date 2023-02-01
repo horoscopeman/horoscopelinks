@@ -1,0 +1,1 @@
+Jeramy Dooley's [horoscope](https://www.cosmosdivina.com/).

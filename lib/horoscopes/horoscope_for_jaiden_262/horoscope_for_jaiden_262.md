@@ -1,0 +1,1 @@
+Jaiden Conroy's [horoscope](https://www.cosmosdivina.com/).

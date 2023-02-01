@@ -1,0 +1,1 @@
+Elinore Block's [horoscope](https://www.cosmosdivina.com/).

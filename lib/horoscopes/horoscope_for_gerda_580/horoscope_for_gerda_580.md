@@ -1,0 +1,1 @@
+Gerda Powlowski's [horoscope](https://www.cosmosdivina.com/).

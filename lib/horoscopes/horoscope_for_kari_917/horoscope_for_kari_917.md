@@ -1,0 +1,1 @@
+Kari Pfannerstill's [horoscope](https://www.cosmosdivina.com/).

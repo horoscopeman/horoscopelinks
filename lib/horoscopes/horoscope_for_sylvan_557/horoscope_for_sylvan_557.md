@@ -1,0 +1,1 @@
+Sylvan Halvorson's [horoscope](https://www.cosmosdivina.com/).

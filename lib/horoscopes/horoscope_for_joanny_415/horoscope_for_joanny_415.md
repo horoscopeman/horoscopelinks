@@ -1,0 +1,1 @@
+Joanny Mayert's [horoscope](https://www.cosmosdivina.com/).

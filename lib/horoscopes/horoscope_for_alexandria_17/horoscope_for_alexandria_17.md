@@ -1,0 +1,1 @@
+Alexandria Schneider's [horoscope](https://www.cosmosdivina.com/).

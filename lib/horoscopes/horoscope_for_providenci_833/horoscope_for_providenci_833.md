@@ -1,0 +1,1 @@
+Providenci Lebsack's [horoscope](https://www.cosmosdivina.com/).

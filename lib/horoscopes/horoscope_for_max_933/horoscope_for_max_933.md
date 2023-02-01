@@ -1,0 +1,1 @@
+Max Homenick's [horoscope](https://www.cosmosdivina.com/).

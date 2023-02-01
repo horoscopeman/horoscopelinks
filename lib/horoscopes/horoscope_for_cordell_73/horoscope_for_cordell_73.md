@@ -1,0 +1,1 @@
+Cordell Spencer's [horoscope](https://www.cosmosdivina.com/).

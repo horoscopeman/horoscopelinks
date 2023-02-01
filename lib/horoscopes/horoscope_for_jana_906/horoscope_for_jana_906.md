@@ -1,0 +1,1 @@
+Jana Schneider's [horoscope](https://www.cosmosdivina.com/).

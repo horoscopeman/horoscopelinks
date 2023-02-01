@@ -1,0 +1,1 @@
+Grady Barton's [horoscope](https://www.cosmosdivina.com/).

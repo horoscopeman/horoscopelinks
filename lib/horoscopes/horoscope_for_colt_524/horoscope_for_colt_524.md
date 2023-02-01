@@ -1,0 +1,1 @@
+Colt Eichmann's [horoscope](https://www.cosmosdivina.com/).

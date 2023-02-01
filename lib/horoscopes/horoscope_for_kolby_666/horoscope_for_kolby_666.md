@@ -1,0 +1,1 @@
+Kolby Watsica's [horoscope](https://www.cosmosdivina.com/).

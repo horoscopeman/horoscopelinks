@@ -1,0 +1,1 @@
+Velma Dooley's [horoscope](https://www.cosmosdivina.com/).

@@ -1,0 +1,1 @@
+Anastasia Schmeler's [horoscope](https://www.cosmosdivina.com/).

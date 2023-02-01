@@ -1,0 +1,1 @@
+Mabel Littel's [horoscope](https://www.cosmosdivina.com/).

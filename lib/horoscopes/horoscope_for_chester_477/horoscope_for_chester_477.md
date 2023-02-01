@@ -1,0 +1,1 @@
+Chester Kshlerin's [horoscope](https://www.cosmosdivina.com/).

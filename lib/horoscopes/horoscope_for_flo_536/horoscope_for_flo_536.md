@@ -1,0 +1,1 @@
+Flo Hickle's [horoscope](https://www.cosmosdivina.com/).

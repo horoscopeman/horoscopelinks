@@ -1,0 +1,1 @@
+Lysanne Bechtelar's [horoscope](https://www.cosmosdivina.com/).

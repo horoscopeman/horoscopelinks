@@ -1,0 +1,1 @@
+Maye Kulas's [horoscope](https://www.cosmosdivina.com/).

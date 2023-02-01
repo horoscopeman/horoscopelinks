@@ -1,0 +1,1 @@
+D'angelo Kuvalis's [horoscope](https://www.cosmosdivina.com/).

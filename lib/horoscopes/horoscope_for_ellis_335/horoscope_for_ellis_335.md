@@ -1,0 +1,1 @@
+Ellis Dickens's [horoscope](https://www.cosmosdivina.com/).

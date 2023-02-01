@@ -1,0 +1,1 @@
+Hulda Schultz's [horoscope](https://www.cosmosdivina.com/).

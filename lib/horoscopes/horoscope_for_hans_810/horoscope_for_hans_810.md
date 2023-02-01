@@ -1,0 +1,1 @@
+Hans Klocko's [horoscope](https://www.cosmosdivina.com/).

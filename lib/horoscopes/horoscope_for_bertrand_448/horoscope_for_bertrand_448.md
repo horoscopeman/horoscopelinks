@@ -1,0 +1,1 @@
+Bertrand Wilderman's [horoscope](https://www.cosmosdivina.com/).

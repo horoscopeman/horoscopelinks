@@ -1,0 +1,1 @@
+Zane Schumm's [horoscope](https://www.cosmosdivina.com/).

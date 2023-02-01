@@ -1,0 +1,1 @@
+Beulah Feeney's [horoscope](https://www.cosmosdivina.com/).

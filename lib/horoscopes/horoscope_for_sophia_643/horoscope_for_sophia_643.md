@@ -1,0 +1,1 @@
+Sophia Schiller's [horoscope](https://www.cosmosdivina.com/).

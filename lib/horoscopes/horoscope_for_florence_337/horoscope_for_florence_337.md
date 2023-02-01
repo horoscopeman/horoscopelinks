@@ -1,0 +1,1 @@
+Florence Spinka's [horoscope](https://www.cosmosdivina.com/).

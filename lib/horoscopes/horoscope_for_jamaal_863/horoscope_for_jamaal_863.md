@@ -1,0 +1,1 @@
+Jamaal Gerhold's [horoscope](https://www.cosmosdivina.com/).

@@ -1,0 +1,1 @@
+Celestine Bartell's [horoscope](https://www.cosmosdivina.com/).

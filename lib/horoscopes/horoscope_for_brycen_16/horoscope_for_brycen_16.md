@@ -1,0 +1,1 @@
+Brycen Quitzon's [horoscope](https://www.cosmosdivina.com/).

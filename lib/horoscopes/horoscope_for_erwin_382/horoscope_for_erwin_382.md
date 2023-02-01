@@ -1,0 +1,1 @@
+Erwin Nitzsche's [horoscope](https://www.cosmosdivina.com/).

@@ -1,0 +1,1 @@
+Genoveva Wuckert's [horoscope](https://www.cosmosdivina.com/).

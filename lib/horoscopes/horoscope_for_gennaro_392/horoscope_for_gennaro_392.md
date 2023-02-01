@@ -1,0 +1,1 @@
+Gennaro Dickinson's [horoscope](https://www.cosmosdivina.com/).

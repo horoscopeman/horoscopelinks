@@ -1,0 +1,1 @@
+Sandrine Dietrich's [horoscope](https://www.cosmosdivina.com/).

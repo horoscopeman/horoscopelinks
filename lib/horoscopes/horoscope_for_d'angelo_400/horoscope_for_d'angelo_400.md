@@ -1,0 +1,1 @@
+D'angelo Blanda's [horoscope](https://www.cosmosdivina.com/).

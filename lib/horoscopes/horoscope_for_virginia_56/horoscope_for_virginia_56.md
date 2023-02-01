@@ -1,0 +1,1 @@
+Virginia Mann's [horoscope](https://www.cosmosdivina.com/).

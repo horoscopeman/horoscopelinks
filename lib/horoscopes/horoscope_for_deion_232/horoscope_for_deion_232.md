@@ -1,0 +1,1 @@
+Deion Hintz's [horoscope](https://www.cosmosdivina.com/).

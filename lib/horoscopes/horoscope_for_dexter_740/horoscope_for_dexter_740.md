@@ -1,0 +1,1 @@
+Dexter Auer's [horoscope](https://www.cosmosdivina.com/).

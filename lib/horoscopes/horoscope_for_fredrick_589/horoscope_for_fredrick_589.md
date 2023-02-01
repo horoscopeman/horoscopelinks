@@ -1,0 +1,1 @@
+Fredrick Tromp's [horoscope](https://www.cosmosdivina.com/).

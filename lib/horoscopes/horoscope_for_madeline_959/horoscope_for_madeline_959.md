@@ -1,0 +1,1 @@
+Madeline Zieme's [horoscope](https://www.cosmosdivina.com/).

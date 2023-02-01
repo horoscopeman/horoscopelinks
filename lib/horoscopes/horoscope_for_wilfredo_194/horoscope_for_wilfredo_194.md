@@ -1,0 +1,1 @@
+Wilfredo Blanda's [horoscope](https://www.cosmosdivina.com/).

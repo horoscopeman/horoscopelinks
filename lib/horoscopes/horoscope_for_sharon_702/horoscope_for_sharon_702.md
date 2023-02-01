@@ -1,0 +1,1 @@
+Sharon Kuphal's [horoscope](https://www.cosmosdivina.com/).

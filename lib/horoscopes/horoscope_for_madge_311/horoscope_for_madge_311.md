@@ -1,0 +1,1 @@
+Madge Sawayn's [horoscope](https://www.cosmosdivina.com/).

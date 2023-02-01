@@ -1,0 +1,1 @@
+Lisa Shanahan's [horoscope](https://www.cosmosdivina.com/).

@@ -1,0 +1,1 @@
+Isaiah Brakus's [horoscope](https://www.cosmosdivina.com/).

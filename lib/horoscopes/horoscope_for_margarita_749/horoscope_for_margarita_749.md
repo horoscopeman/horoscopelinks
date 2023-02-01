@@ -1,0 +1,1 @@
+Margarita Metz's [horoscope](https://www.cosmosdivina.com/).

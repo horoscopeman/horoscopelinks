@@ -1,0 +1,1 @@
+Jaylin Corkery's [horoscope](https://www.cosmosdivina.com/).

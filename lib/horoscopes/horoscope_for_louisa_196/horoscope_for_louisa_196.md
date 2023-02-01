@@ -1,0 +1,1 @@
+Louisa Batz's [horoscope](https://www.cosmosdivina.com/).

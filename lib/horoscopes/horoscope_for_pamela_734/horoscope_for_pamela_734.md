@@ -1,0 +1,1 @@
+Pamela Little's [horoscope](https://www.cosmosdivina.com/).

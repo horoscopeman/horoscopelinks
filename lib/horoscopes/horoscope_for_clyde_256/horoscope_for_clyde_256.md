@@ -1,0 +1,1 @@
+Clyde Mosciski's [horoscope](https://www.cosmosdivina.com/).

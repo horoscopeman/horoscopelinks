@@ -1,0 +1,1 @@
+Zackery Botsford's [horoscope](https://www.cosmosdivina.com/).

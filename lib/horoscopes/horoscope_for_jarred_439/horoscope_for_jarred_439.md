@@ -1,0 +1,1 @@
+Jarred Ratke's [horoscope](https://www.cosmosdivina.com/).

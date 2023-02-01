@@ -1,0 +1,1 @@
+Velva Hauck's [horoscope](https://www.cosmosdivina.com/).
