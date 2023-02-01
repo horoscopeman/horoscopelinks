@@ -1,0 +1,1 @@
+Carter Oberbrunner's [horoscope](https://www.cosmosdivina.com/).

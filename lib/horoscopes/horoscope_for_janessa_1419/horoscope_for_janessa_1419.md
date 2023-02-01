@@ -1,0 +1,1 @@
+Janessa Crooks's [horoscope](https://www.cosmosdivina.com/).

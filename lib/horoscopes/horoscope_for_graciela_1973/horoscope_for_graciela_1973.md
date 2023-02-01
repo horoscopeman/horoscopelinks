@@ -1,0 +1,1 @@
+Graciela Satterfield's [horoscope](https://www.cosmosdivina.com/).

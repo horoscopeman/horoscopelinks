@@ -1,0 +1,1 @@
+Vance Rath's [horoscope](https://www.cosmosdivina.com/).

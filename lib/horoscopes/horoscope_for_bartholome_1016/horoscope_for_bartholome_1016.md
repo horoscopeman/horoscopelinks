@@ -1,0 +1,1 @@
+Bartholome Murray's [horoscope](https://www.cosmosdivina.com/).

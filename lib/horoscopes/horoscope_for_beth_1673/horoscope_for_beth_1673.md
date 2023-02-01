@@ -1,0 +1,1 @@
+Beth Buckridge's [horoscope](https://www.cosmosdivina.com/).

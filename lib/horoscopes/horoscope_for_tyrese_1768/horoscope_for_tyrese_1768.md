@@ -1,0 +1,1 @@
+Tyrese Kautzer's [horoscope](https://www.cosmosdivina.com/).

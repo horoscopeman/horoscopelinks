@@ -1,0 +1,1 @@
+Jaquelin Cassin's [horoscope](https://www.cosmosdivina.com/).

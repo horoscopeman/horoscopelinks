@@ -1,0 +1,1 @@
+Dillan Labadie's [horoscope](https://www.cosmosdivina.com/).

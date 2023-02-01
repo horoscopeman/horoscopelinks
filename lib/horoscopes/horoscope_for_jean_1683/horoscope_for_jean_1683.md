@@ -1,0 +1,1 @@
+Jean Cummings's [horoscope](https://www.cosmosdivina.com/).

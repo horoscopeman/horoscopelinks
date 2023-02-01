@@ -1,0 +1,1 @@
+Georgette Hodkiewicz's [horoscope](https://www.cosmosdivina.com/).

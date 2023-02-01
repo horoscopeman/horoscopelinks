@@ -1,0 +1,1 @@
+Maggie Kuphal's [horoscope](https://www.cosmosdivina.com/).

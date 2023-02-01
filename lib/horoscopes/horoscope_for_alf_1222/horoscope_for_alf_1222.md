@@ -1,0 +1,1 @@
+Alf Ebert's [horoscope](https://www.cosmosdivina.com/).

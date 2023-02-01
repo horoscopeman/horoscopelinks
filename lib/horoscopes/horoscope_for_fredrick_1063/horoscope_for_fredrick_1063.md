@@ -1,0 +1,1 @@
+Fredrick Kozey's [horoscope](https://www.cosmosdivina.com/).

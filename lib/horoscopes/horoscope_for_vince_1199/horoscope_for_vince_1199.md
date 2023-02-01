@@ -1,0 +1,1 @@
+Vince Ankunding's [horoscope](https://www.cosmosdivina.com/).

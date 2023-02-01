@@ -1,0 +1,1 @@
+Bradford Hayes's [horoscope](https://www.cosmosdivina.com/).

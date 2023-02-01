@@ -1,0 +1,1 @@
+Maye Carroll's [horoscope](https://www.cosmosdivina.com/).

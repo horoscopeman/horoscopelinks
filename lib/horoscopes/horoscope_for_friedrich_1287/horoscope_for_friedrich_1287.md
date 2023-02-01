@@ -1,0 +1,1 @@
+Friedrich Boyle's [horoscope](https://www.cosmosdivina.com/).

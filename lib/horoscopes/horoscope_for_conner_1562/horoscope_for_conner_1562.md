@@ -1,0 +1,1 @@
+Conner Hartmann's [horoscope](https://www.cosmosdivina.com/).

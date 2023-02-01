@@ -1,0 +1,1 @@
+Brycen Rau's [horoscope](https://www.cosmosdivina.com/).

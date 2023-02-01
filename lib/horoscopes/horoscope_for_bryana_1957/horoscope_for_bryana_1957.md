@@ -1,0 +1,1 @@
+Bryana Wuckert's [horoscope](https://www.cosmosdivina.com/).

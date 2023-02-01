@@ -1,0 +1,1 @@
+Nyasia Jacobi's [horoscope](https://www.cosmosdivina.com/).

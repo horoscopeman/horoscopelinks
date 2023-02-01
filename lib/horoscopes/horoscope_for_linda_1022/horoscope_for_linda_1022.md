@@ -1,0 +1,1 @@
+Linda McGlynn's [horoscope](https://www.cosmosdivina.com/).

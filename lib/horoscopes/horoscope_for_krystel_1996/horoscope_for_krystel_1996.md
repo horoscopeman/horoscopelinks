@@ -1,0 +1,1 @@
+Krystel Robel's [horoscope](https://www.cosmosdivina.com/).

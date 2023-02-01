@@ -1,0 +1,1 @@
+Genoveva D'Amore's [horoscope](https://www.cosmosdivina.com/).

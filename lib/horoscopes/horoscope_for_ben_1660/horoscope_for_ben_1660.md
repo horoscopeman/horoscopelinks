@@ -1,0 +1,1 @@
+Ben Ondricka's [horoscope](https://www.cosmosdivina.com/).

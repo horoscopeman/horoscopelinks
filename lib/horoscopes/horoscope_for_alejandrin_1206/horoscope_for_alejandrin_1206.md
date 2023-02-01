@@ -1,0 +1,1 @@
+Alejandrin Blick's [horoscope](https://www.cosmosdivina.com/).

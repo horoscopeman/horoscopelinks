@@ -1,0 +1,1 @@
+Benedict Hirthe's [horoscope](https://www.cosmosdivina.com/).

@@ -1,0 +1,1 @@
+Bertram Dach's [horoscope](https://www.cosmosdivina.com/).

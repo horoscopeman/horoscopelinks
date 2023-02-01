@@ -1,0 +1,1 @@
+Tristin Walker's [horoscope](https://www.cosmosdivina.com/).

@@ -1,0 +1,1 @@
+Lavinia O'Conner's [horoscope](https://www.cosmosdivina.com/).

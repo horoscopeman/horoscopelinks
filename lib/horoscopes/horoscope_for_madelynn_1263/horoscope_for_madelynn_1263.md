@@ -1,0 +1,1 @@
+Madelynn Paucek's [horoscope](https://www.cosmosdivina.com/).

@@ -1,0 +1,1 @@
+Chance Hane's [horoscope](https://www.cosmosdivina.com/).

@@ -1,0 +1,1 @@
+Richard Kohler's [horoscope](https://www.cosmosdivina.com/).

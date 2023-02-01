@@ -1,0 +1,1 @@
+Bessie Blick's [horoscope](https://www.cosmosdivina.com/).

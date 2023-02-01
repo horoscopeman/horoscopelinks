@@ -1,0 +1,1 @@
+Jayne Collier's [horoscope](https://www.cosmosdivina.com/).

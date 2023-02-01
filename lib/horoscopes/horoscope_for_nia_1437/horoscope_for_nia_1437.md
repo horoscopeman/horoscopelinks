@@ -1,0 +1,1 @@
+Nia Lakin's [horoscope](https://www.cosmosdivina.com/).

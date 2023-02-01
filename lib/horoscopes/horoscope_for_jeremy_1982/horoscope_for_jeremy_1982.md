@@ -1,0 +1,1 @@
+Jeremy Homenick's [horoscope](https://www.cosmosdivina.com/).

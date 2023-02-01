@@ -1,0 +1,1 @@
+Chandler Metz's [horoscope](https://www.cosmosdivina.com/).

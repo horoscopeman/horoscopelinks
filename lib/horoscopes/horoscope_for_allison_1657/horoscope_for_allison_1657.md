@@ -1,0 +1,1 @@
+Allison Boyer's [horoscope](https://www.cosmosdivina.com/).

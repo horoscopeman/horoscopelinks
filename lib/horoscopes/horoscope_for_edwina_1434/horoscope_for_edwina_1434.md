@@ -1,0 +1,1 @@
+Edwina Green's [horoscope](https://www.cosmosdivina.com/).

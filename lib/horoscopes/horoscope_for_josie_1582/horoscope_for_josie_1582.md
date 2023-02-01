@@ -1,0 +1,1 @@
+Josie Friesen's [horoscope](https://www.cosmosdivina.com/).

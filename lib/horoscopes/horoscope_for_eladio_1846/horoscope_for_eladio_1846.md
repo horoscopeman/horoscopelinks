@@ -1,0 +1,1 @@
+Eladio Kuphal's [horoscope](https://www.cosmosdivina.com/).

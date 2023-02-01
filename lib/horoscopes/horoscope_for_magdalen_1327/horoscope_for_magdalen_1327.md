@@ -1,0 +1,1 @@
+Magdalen Koss's [horoscope](https://www.cosmosdivina.com/).

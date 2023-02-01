@@ -1,0 +1,1 @@
+Mandy Feest's [horoscope](https://www.cosmosdivina.com/).

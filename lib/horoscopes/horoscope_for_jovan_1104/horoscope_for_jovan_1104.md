@@ -1,0 +1,1 @@
+Jovan O'Connell's [horoscope](https://www.cosmosdivina.com/).

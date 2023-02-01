@@ -1,0 +1,1 @@
+Kaela Wisoky's [horoscope](https://www.cosmosdivina.com/).

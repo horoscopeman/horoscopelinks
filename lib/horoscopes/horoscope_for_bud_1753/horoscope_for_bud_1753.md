@@ -1,0 +1,1 @@
+Bud Treutel's [horoscope](https://www.cosmosdivina.com/).

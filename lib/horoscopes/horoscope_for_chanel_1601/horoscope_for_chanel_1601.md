@@ -1,0 +1,1 @@
+Chanel Runolfsson's [horoscope](https://www.cosmosdivina.com/).

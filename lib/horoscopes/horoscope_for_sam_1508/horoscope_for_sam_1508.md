@@ -1,0 +1,1 @@
+Sam Kub's [horoscope](https://www.cosmosdivina.com/).

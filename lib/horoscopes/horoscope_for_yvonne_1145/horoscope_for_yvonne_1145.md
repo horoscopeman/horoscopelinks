@@ -1,0 +1,1 @@
+Yvonne Lind's [horoscope](https://www.cosmosdivina.com/).

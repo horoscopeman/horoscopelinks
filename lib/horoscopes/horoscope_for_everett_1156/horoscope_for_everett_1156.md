@@ -1,0 +1,1 @@
+Everett Gorczany's [horoscope](https://www.cosmosdivina.com/).

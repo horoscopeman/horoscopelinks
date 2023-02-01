@@ -1,0 +1,1 @@
+Larry Crooks's [horoscope](https://www.cosmosdivina.com/).

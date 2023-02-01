@@ -1,0 +1,1 @@
+Rosetta Fadel's [horoscope](https://www.cosmosdivina.com/).

@@ -1,0 +1,1 @@
+Ashtyn Wisoky's [horoscope](https://www.cosmosdivina.com/).

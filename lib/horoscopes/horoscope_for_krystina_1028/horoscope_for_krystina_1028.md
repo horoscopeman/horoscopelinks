@@ -1,0 +1,1 @@
+Krystina Bashirian's [horoscope](https://www.cosmosdivina.com/).

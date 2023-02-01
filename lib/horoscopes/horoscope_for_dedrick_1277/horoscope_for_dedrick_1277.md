@@ -1,0 +1,1 @@
+Dedrick Kunze's [horoscope](https://www.cosmosdivina.com/).

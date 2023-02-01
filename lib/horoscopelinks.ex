@@ -13,7 +13,7 @@ defmodule Horoscopelinks do
 
   """
   def links() do
-    for n <- 1..1000 do
+    for n <- 1000..2000 do
       url = "https://www.cosmosdivina.com/"
       first_name = Faker.Person.first_name()
       last_name = Faker.Person.last_name()

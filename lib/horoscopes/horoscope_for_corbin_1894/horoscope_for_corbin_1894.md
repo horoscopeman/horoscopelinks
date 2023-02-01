@@ -1,0 +1,1 @@
+Corbin Bernhard's [horoscope](https://www.cosmosdivina.com/).

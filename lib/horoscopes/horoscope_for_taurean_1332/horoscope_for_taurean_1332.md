@@ -1,0 +1,1 @@
+Taurean Schimmel's [horoscope](https://www.cosmosdivina.com/).

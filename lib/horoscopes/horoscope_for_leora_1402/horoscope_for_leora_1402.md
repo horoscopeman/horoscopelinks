@@ -1,0 +1,1 @@
+Leora Lindgren's [horoscope](https://www.cosmosdivina.com/).

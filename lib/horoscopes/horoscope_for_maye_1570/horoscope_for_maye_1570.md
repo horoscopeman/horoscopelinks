@@ -1,0 +1,1 @@
+Maye Marquardt's [horoscope](https://www.cosmosdivina.com/).

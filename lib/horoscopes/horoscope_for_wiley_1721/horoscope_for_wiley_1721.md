@@ -1,0 +1,1 @@
+Wiley Beatty's [horoscope](https://www.cosmosdivina.com/).

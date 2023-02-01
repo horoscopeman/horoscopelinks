@@ -1,0 +1,1 @@
+Lera Fisher's [horoscope](https://www.cosmosdivina.com/).

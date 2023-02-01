@@ -1,0 +1,1 @@
+Moses Cummings's [horoscope](https://www.cosmosdivina.com/).

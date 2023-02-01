@@ -1,0 +1,1 @@
+Myrtice Swift's [horoscope](https://www.cosmosdivina.com/).

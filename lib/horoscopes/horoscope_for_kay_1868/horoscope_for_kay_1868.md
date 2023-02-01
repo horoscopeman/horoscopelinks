@@ -1,0 +1,1 @@
+Kay Wyman's [horoscope](https://www.cosmosdivina.com/).

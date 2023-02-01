@@ -1,0 +1,1 @@
+Garland Swaniawski's [horoscope](https://www.cosmosdivina.com/).

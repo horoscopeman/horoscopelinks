@@ -1,0 +1,1 @@
+Shayne Emard's [horoscope](https://www.cosmosdivina.com/).

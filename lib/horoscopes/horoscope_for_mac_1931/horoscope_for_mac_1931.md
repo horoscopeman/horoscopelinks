@@ -1,0 +1,1 @@
+Mac Rice's [horoscope](https://www.cosmosdivina.com/).

@@ -1,0 +1,1 @@
+Easton Donnelly's [horoscope](https://www.cosmosdivina.com/).
